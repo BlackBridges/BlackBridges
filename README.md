@@ -6,7 +6,8 @@
 
 My name is SharkBait but if you want to call me something else you can call me Bait.
 
-I know many people have different perspectives and opinions on pros and I get it I really do. But what I don't get is how many antis treat pros, the deaths threats, comparing them to the nzis? Like you says pros are bad when you tell them to kill theirself even though they aren't causing harassment to you guys. So please be respectful even if you disagree with pros. Thank you for understanding <333
+I am a minor. I enjoy car paint designs, marine biology, cartoon shows and much more. Planning to make a strawpage here soon. 
+Yes, I fear that I am a scary pro >_<!!!! So block me if you need <33 
 
 ![a](https://i.pinimg.com/474x/10/df/d5/10dfd5aa7c5c49ba949c033ec0b75b08.jpg)
 
@@ -16,8 +17,8 @@ Dni :
 
 . -16
 
-. Harassers
+. Harassers (Antis are fine to talk with me but if you harass than please just refrain from interacting)
 
 . Just basic DNI criteria to be honest.
 
-.Also very specific but people who are like asking how you were grommed cause like why the fuck are you asking?
+.Also very specific but people who are like asking how you were grommed cause like why 
