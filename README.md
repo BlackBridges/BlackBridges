@@ -1,5 +1,7 @@
 
 ![a](https://i.pinimg.com/736x/21/b4/8f/21b48f6a921933aec81af6e4bdc2c594.jpg)
+
+
 **"HI THERE FACE HERE!"**
 
 My name is SharkBait but if you want to call me something else you can call me Bait.
@@ -11,6 +13,11 @@ I know many people have different perspectives and opinions on pros and I get it
 I am an autistic man with a passion for marine biology. I like to study sharks and cephalopods as it is a big interest of mine. I would love to find more passionate marine biologist out there! 
 
 Dni :
+
 . -16
+
 . Harassers
+
 . Just basic DNI criteria to be honest.
+
+.Also very specific but people who are like asking how you were grommed cause like why the fuck are you asking?
