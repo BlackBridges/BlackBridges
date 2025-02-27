@@ -7,7 +7,7 @@
 My name is SharkBait but if you want to call me something else you can call me Bait.
 
 I am a minor. I enjoy car paint designs, marine biology, cartoon shows and much more. Planning to make a strawpage here soon. 
-Yes, I fear that I am a scary pro >_<!!!! So block me if you need <33 
+Yes, I fear that I am a scary pro >_<!!!! So block me if you need <33 To the people out there that been sending threats, you are not making it any better and to be honest you're just making my mental health worse. I am trying my best to be a kind person but the threats and certain comments are making me feel worse and I am going down hill instead of trying to heal. Please with all due respect if you don't like pros then hide me. An people that are antis but don't harrass and understand proshipping I thank you very much. I hope the person reading this has a wonderful day.
 
 ![a](https://i.pinimg.com/474x/10/df/d5/10dfd5aa7c5c49ba949c033ec0b75b08.jpg)
 
