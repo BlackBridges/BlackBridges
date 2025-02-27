@@ -10,7 +10,7 @@ I am a minor. I enjoy car paint designs, marine biology, cartoon shows and much 
 Yes, I fear that I am a scary pro >_<!!!! So block me if you need <33 
 
 
-Disclaimer : I do not encourage proshipping or think it should be normalized to be honest, it is an unhealthy coping mechanism and I am aware of that. Even thought it's unhealthy is still helps me. I am trying to heal and the constant threats are not helping.
+Disclaimer : I do not encourage proshipping or think it should be normalized to be honest, it is an unhealthy coping mechanism and I am aware of that. Even thought it's unhealthy it still helps me. I am trying to heal and the constant threats are not helping.
 
 ![a](https://i.pinimg.com/474x/10/df/d5/10dfd5aa7c5c49ba949c033ec0b75b08.jpg)
 
