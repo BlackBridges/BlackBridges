@@ -1,9 +1,9 @@
 
-![a](https://i.pinimg.com/736x/60/b8/db/60b8dbd159a8732550c4f4593643639c.jpg)
+![a](https://i.pinimg.com/736x/2f/6e/ce/2f6eced608ae39c3e9b3630dd9bce11c.jpg)
 
 
 
-![j](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=F4C2C2)
+![j](https://komarev.com/ghpvc/?username=FreakyOc3anNerd&color=FFFFF)
 
 # 🐟~!! MARINEGUY !
 [What I watch on a daily basis.](https://www.youtube.com/watch?v=hJl7vkQ918M&list=PLOdD_kfSjYpR-dNR4lu5vOSua_Sved6Gk)
